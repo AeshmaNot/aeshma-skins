@@ -4,5 +4,5 @@
 # [-『HowlSakura』- Varvalian](https://drive.google.com/file/d/1YontctQxL5fcUreiZ-HUpkSo0q_GOcYd/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18101467/df03)
 
-# [- Delis Except It Is Varvalian](https://mizaruyea.s-ul.eu/5lSwk7ay)
-![](https://osu.ppy.sh/ss/13790768/c414)
+# [- Laplus Darkness Aeshma Edit.osk](https://drive.google.com/file/d/1TdeOIs7Zr2UY2eBtKOAwjAO4J67wSVPy/view?usp=sharing)
+![](https://osu.ppy.sh/ss/18101485/0d79)
