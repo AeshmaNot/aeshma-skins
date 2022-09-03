@@ -3,3 +3,6 @@
 
 # [-『HowlSakura』- Varvalian](https://drive.google.com/file/d/1YontctQxL5fcUreiZ-HUpkSo0q_GOcYd/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/18101467/df03)
+
+# [- Delis Except It Is Varvalian](https://mizaruyea.s-ul.eu/5lSwk7ay)
+![](https://osu.ppy.sh/ss/13790768/c414)
