@@ -1,9 +1,9 @@
-# [- Rafis V2 2018-03-26 HDDT (aeshma edit) yellow cursor](https://drive.google.com/file/d/1j4MSkxCxJbdNLImJcYamX_Sa2bZUjlxf/view?usp=drive_link)
+# [- Rafis V2 2018-03-26 HDDT (aeshma edit) yellow cursor](https://drive.google.com/file/d/1YpDSdCyxTICG-CaiCahWbtULYERIjihE/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/19272778/60b3)
 # [- For V1 Click Here (no shu theme)](https://drive.google.com/file/d/1Y4qIWN1H-5rFWB8bgi30xAWuKtmhqDKk/view?usp=drive_link)
 ![](https://osu.ppy.sh/ss/19272715/3abf)
 
-# [- Rafis V2 2018-03-26 HDDT (aeshma edit) aristia cursor](https://drive.google.com/file/d/1jLDvjh-oerJ460osE8MvtglTxZsy_iYs/view?usp=drive_link)
+# [- Rafis V2 2018-03-26 HDDT (aeshma edit) aristia cursor](https://drive.google.com/file/d/1B7Rb3G1Iq6bt8NKrZfjsSbvcGzbmQS_7/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/19272782/b05c)
 # [- For V1 Click Here (no shu theme)](https://drive.google.com/file/d/1LMysGKDG8ejzddrG1W0vZDqqtS3yS3eo/view?usp=drive_link)
 ![](https://osu.ppy.sh/ss/19272717/bc0a)
