@@ -1,3 +1,10 @@
+# [Skill (aeshma edit)](https://drive.google.com/file/d/130apcXbbjWjYhRwdTWJUCQR23bjzIGtk/view?usp=sharing)
+![](https://osu.ppy.sh/ss/19283034/aa00)
+
+
+----------------------------------------------------------------
+
+
 # [- Rafis V2 2018-03-26 HDDT (aeshma edit) yellow cursor](https://drive.google.com/file/d/1YpDSdCyxTICG-CaiCahWbtULYERIjihE/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/19272778/60b3)
 # [- For V1 Click Here (no shu theme)](https://drive.google.com/file/d/1Y4qIWN1H-5rFWB8bgi30xAWuKtmhqDKk/view?usp=drive_link)
