@@ -1,5 +1,12 @@
 # Aeshma's Skins
 
+## [varvnanoaesh (transparent song select as well)](https://drive.google.com/file/d/1QWp5wA_C_XuTdDcko9biWOk8WKXJ5xyS/view?usp=sharing)
+![](https://osu.ppy.sh/ss/19289265/aefa)
+
+
+----------------------------------------------------------------
+
+
 ## [transparentvarv](https://drive.google.com/file/d/18K_jJxkLW9AS_Jqi7LC4ZiPh-9iKUMj2/view?usp=sharing)
 ![](https://osu.ppy.sh/ss/19289043/6d16)
 
