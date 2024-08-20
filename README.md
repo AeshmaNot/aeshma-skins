@@ -7,8 +7,8 @@
 ----------------------------------------------------------------
 
 
-## [transparentvarv](https://drive.google.com/file/d/18K_jJxkLW9AS_Jqi7LC4ZiPh-9iKUMj2/view?usp=sharing)
-![](https://osu.ppy.sh/ss/19289043/6d16)
+## [transparentvarv (transparent song selection)](https://drive.google.com/file/d/18K_jJxkLW9AS_Jqi7LC4ZiPh-9iKUMj2/view?usp=sharing)
+![](https://osu.ppy.sh/ss/19289266/e5fc)
 
 ----------------------------------------------------------------
 
